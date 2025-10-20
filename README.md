@@ -4,3 +4,4 @@
 **Iar eu sunt un text ingrosat!**
 - mor de cringe aicea :sob:
 [Iad](https://usv.ro/)
+(\le images\clash-royale-clash-royale-emote.gif)
