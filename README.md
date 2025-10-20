@@ -4,4 +4,4 @@
 **Iar eu sunt un text ingrosat!**
 - mor de cringe aicea :sob:
 [Iad](https://usv.ro/)
-![test](/le images/clash-royale-clash-royale-emote.gif "67")
+![](https://github.com/TibuAlexandru/Proiect-Demo-ESC/blob/main/le%20images/clash-royale-clash-royale-emote.gif "67")
