@@ -3,4 +3,4 @@
 *Acest text este special (italic)*
 **Iar eu sunt un text ingrosat!**
 - mor de cringe aicea :sob:
-[Iad] (https://usv.ro/)
+[Iad](https://usv.ro/)
